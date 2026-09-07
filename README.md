@@ -4,4 +4,4 @@
 
 ändrat igen!
 
-Ändring ännu en gång
+Ändring ännu en gång.
